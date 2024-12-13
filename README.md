@@ -4,4 +4,3 @@
 ![Screenshot 2024-12-13 184944](https://github.com/user-attachments/assets/e6d1d6d3-8873-4384-8f7c-396d5a512b1a)
 ![Screenshot 2024-12-13 185002](https://github.com/user-attachments/assets/be1e0978-a215-4ca9-ba9c-7035cc036131)
 ![Screenshot 2024-12-13 185106](https://github.com/user-attachments/assets/dca175c3-248e-42fe-846f-452327f5e369)
-![Screenshot 2024-12-13 185129](https://github.com/user-attachments/assets/8ec1db5f-0fdb-4676-864e-c6544ccddcd8)
